@@ -1,0 +1,2 @@
+# Live-and-let-live
+ Live and let live is a web page about creating awareness in you that what is happening in the surrounding world. Day by day our animals are endangered,our crops production and the crop grown area also decreasing, population also increasing in a drastic way. So we want to show in which trend they are changing, what are the consequences that we may face if it go on happening like this.
